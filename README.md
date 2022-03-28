@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Gabriel
+- 👀 I’m interested in anime and vr
+- 🌱 I’m currently learning how to make mods
+- 💞️ I’m looking to collaborate on gorilla tag mod
